@@ -1,3 +1,3 @@
-<h1>JAVBA</h1>
+<h1>JAV</h1>
 <br/>
-[站点](https://javba.cc) 
+[站点](https://jav.cc) 
